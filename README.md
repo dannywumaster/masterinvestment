@@ -1,0 +1,2 @@
+# masterinvestment
+Master AI INVESTMENT
